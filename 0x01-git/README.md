@@ -1,1 +1,1 @@
-good
+God is good
